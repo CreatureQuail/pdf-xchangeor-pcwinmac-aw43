@@ -1,4 +1,4 @@
-# 
+# Instantâneo PDF-XChange Editor extensões para Mac OS | Top PDF-XChange Editor extensões para PC Windows. Com reorganização de páginas e conformidade com políticas — otimizado para máximo desempenho em cada plataforma.
 
 
 
